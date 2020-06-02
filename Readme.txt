@@ -1,0 +1,1 @@
+Greatness is achieved through discipline and perseverance.
